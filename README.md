@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-awod built the КУЗЬМА app as a Commercial app. This SERVICE is provided by awod and is intended for use as is.
+awod built the GTS.MOBILE app as a Commercial app. This SERVICE is provided by awod and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
